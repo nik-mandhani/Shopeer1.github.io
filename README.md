@@ -1,1 +1,0 @@
-# Shopeer1.github.io
